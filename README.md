@@ -1,3 +1,2 @@
 # pog
-ight bet
-hey peter
+ur cool
